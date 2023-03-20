@@ -1,1 +1,0 @@
-# seohyeon1212.github.io
